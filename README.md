@@ -1,0 +1,2 @@
+Hiện nay, độ tuổi mắc đau lưng ngày càng trẻ hóa, đây là thực trạng đáng báo động ở hầu hết các quốc gia trên thế giới. Theo kết quả nghiên cứu gần đây của các nhà khoa học Anh thì một trong những tác nhân đẩy người trẻ tuổi đến gần hơn với các cơn đau dai dẳng ở lưng là do thói quen ngồi nhiều. 
+https://medium.com/@chuabenhkhoptambinh/ch%E1%BB%A9ng-%C4%91au-l%C6%B0ng-%E1%BB%9F-ng%C6%B0%E1%BB%9Di-tr%E1%BA%BB-tu%E1%BB%95i-1fa69e67a34c
